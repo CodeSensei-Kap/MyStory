@@ -1,1 +1,1 @@
-Fort heard the gorund rumbling, as a giant claw burst through the concrete floor beneath the Washington Monument.
+Fort heard the gorund rumbling, as a giant claw burst through the concrete floor beneath the Washington Monument. He looked closer and saw his dad falling into the giant hole made from the claw, and the last thing he heard was his father screaming in shrill voice.
